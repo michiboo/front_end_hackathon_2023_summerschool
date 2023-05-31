@@ -1,0 +1,1 @@
+# front_end_hackathon_2023_summerschool
